@@ -1,1 +1,0 @@
-# Luna-e-Ana-V-2E-2-tri
